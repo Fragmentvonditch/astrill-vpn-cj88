@@ -1,10 +1,10 @@
-Best Astrill VPN Extension | IKEv2 support + dedicated IP is the best Astrill VPN extension with IKEv2 support and dedicated IP. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/astrill-vpn-cj88/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
